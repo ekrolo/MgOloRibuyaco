@@ -1,0 +1,2 @@
+# MgOloRibuyaco
+Project namin. 
